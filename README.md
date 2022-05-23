@@ -5,4 +5,4 @@
 
 3. And our mission is to establish the Srila Prabhupad mission by using available resources.
 
-4. *We seek Laxmi to accomplish Srila Prabhupada's proposed society, hence it is named Kuber to Prabhupada*
+4. *We seek Laxmi to accomplish Srila Prabhupada's proposed society, hence it is named Kuber to Prabhupada*.

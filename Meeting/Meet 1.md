@@ -10,4 +10,4 @@ This meet will be held by 7:00PM 24/05/2022
 
 
 
-# Hare krishna! minutes of meet is in process
+# Hare krishna! minutes of meet is under process

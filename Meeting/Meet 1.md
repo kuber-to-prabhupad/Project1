@@ -10,4 +10,8 @@ This meet will be held by 7:00PM 24/05/2022
 
 
 
-# Hare krishna! minutes of meet is under process
+
+![image](https://github.com/kuber-to-prabhupad/Project1/blob/main/data/MoM%201.jpeg)
+
+
+# Hare krishna! Notes of meet is under process
